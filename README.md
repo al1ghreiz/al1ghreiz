@@ -21,4 +21,5 @@ Bei der Beschreibung der technischen Anforderungen handelt es sich nur um ein Id
 
 Wir freuen uns über deine Nachricht per WhatsApp oder per Mail
 +49 17626027268
+
 ali.ighreiz@gmail.com
