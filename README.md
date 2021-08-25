@@ -20,6 +20,8 @@ Ab Herbst werden wir, finanziert durch ein EXIST-Gründerstipendium, in Vollzeit
 Bei der Beschreibung der technischen Anforderungen handelt es sich nur um ein Ideal. Am wichtigsten ist, dass es menschlich passt und die Lust besteht sich in die Sachen einzuarbeiten.
 
 Wir freuen uns über deine Nachricht per WhatsApp oder per Mail
+
+
 +49 17626027268
 
 ali.ighreiz@gmail.com
